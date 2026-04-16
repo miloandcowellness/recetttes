@@ -1,1 +1,1 @@
-# recetttes
+# recettes
